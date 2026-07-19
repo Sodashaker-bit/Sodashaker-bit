@@ -2,7 +2,7 @@
 
  me if you care btw <33
 
-![Visitors](https://api.visitorbadge.io/api/visitors?path=sodashaker-bit&label=students%20of%20class%201-A&labelColor=%23b2cec5&countColor=%23c895ce&style=plastic&labelStyle=lower)
+ ![visitors](https://komarev.com/ghpvc/?username=sodashaker-bit&label=class%20of%201-A&labelColor=%23697689&countcolor=b2cec5&style=plastic)
 
 
 
