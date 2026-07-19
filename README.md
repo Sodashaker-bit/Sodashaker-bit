@@ -10,8 +10,11 @@
 
 • over 20+ dni or intwc . s ame goes for anyone uder 14.
 　
-
-　　　　　𓂃　ㅤdoubles HEAVILY int !! <3 　_
+  
+  • " mina ashido and ♡ . . . pinkie pie kin ! 𓎠𓎡
+　　　　
+          
+   𓂃　ㅤdoubles HEAVILY int !! <3 　_
 
 　　　　　　
 
