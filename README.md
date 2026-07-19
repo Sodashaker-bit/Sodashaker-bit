@@ -4,8 +4,6 @@
 
 <img width="750" height="506" alt="36fdfd3ee82e9fda99d0c552c3cbdfc8" src="https://github.com/user-attachments/assets/9bd44170-6abf-4684-950d-553e1fa4b8e0" />
 
- me if you care btw <33
-
    ![visitors](https://komarev.com/ghpvc/?username=sodashaker-bit&label=class%20of%201-A&labelColor=%23697689&countcolor=f4bcc6&style=plastic)
 
 • intwc (or care) , i'm verry sesitive with alot of things, it can make me have mental breakdown or just close of ofcompletely .
