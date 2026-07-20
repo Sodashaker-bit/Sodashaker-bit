@@ -1,8 +1,6 @@
 
-<img width="736" height="736" alt="dcdfe8b3e1b97d49831476066973dc0d" src="https://github.com/user-attachments/assets/a3396bc8-d059-47c2-b0e2-3048534ad3fb" />
+<img width="736" height="414" alt="3d195fdc21da9a6c01b4ae2c7b02a203" src="https://github.com/user-attachments/assets/1325a556-7b57-4794-96ea-c3f44d3af123" />
 
-
-<img width="750" height="506" alt="36fdfd3ee82e9fda99d0c552c3cbdfc8" src="https://github.com/user-attachments/assets/9bd44170-6abf-4684-950d-553e1fa4b8e0" />
 
    ![visitors](https://komarev.com/ghpvc/?username=sodashaker-bit&label=class%20of%201-A&labelColor=%23697689&countcolor=f4bcc6&style=plastic)
 
