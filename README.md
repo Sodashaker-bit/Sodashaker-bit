@@ -11,10 +11,10 @@
 • over 20+ dni or intwc . s ame goes for anyone uder 14.
 　
   
-  • " HEAVILY  a mina ashido and ♡ . . . pinkie pie kin ! 𓎠𓎡
+  • " HEAVILY a mina ashido and ♡ . . . pinkie pie kin ! 𓎠𓎡
 　　　　
-          
-   𓂃　ㅤdoubles int freely !! <3 　_
+   • " I tend to copy other peoples typing quirks ,  or even copy how they type in general. i dont MEAN to do this on puropse to annoy others. its just how i show my appreciation towards you .       
+   𓂃　ㅤdoubles  freely !! <3 　_
 
 　　　　　　
 
