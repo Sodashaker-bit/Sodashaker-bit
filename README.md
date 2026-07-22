@@ -13,8 +13,12 @@
   
   • " HEAVILY a mina ashido and ♡ . . . pinkie pie kin ! 𓎠𓎡
 　　　　
+
    • " I tend to copy other peoples typing quirks ,  or even copy how they type in general. i dont MEAN to do this on puropse to annoy others. its just how i show my appreciation towards you .       
+ 
+   
    𓂃　ㅤdoubles  freely !! <3 　_
+
 
 　　　　　　
 
