@@ -1,6 +1,5 @@
 
 <img width="736" height="414" alt="3d195fdc21da9a6c01b4ae2c7b02a203" src="https://github.com/user-attachments/assets/1325a556-7b57-4794-96ea-c3f44d3af123" /> 
-<img width="1024" height="218" alt="2nnghe" src="https://github.com/user-attachments/assets/5e899a55-28e6-449a-834e-febfde49bf77" />
 
 
 
@@ -15,7 +14,10 @@
 
 • over 20+ dni or intwc . s ame goes for anyone uder 14.
 　
-  
+ <img width="150" height="20" alt="tumblr_3a6d111f8e2ec348b4c864b5d939c1ba_ba7ba15a_250" src="https://github.com/user-attachments/assets/4ebfc737-f0ac-4c57-9af2-428b99635043" />
+<img width="150" height="20" alt="tumblr_46ffaf823bacba3074c09fc9efd391c5_50c236ec_250" src="https://github.com/user-attachments/assets/1e8fb48d-b719-4a67-a531-3b09b1fe844c" />
+ 
+
   • " HEAVILY a mina ashido and ♡ . . . pinkie pie kin ! 𓎠𓎡
 　　　　
 
