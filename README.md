@@ -24,7 +24,7 @@
    • " I tend to copy other peoples typing quirks ,  or even copy how they type in general. i dont MEAN to do this on puropse to annoy others. its just how i show my appreciation towards you .       
  
    
-   𓂃　ㅤdoubles  freely !! <3 　_
+   𓂃　 !! <3 　_
 
 
 　　　　　　
@@ -35,5 +35,3 @@
                                            𓂃　ㅤ ships int idm what kind !!  　+
 
 
-
- https://rentry.co/border (not mine but an old firends !
