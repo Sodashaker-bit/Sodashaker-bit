@@ -18,7 +18,7 @@
 <img width="150" height="20" alt="tumblr_46ffaf823bacba3074c09fc9efd391c5_50c236ec_250" src="https://github.com/user-attachments/assets/1e8fb48d-b719-4a67-a531-3b09b1fe844c" />
  
 
-  • " HEAVILY a mina ashido and ♡ . . . pinkie pie kin ! 𓎠𓎡
+  • " HEAVILY a mina ashido, pinkie pie, AND stormbringer cookie kin ! 𓎠 dubles intwc or dni .𓎡
 　　　　
 
    • " I tend to copy other peoples typing quirks ,  or even copy how they type in general. i dont MEAN to do this on puropse to annoy others. its just how i show my appreciation towards you .       
