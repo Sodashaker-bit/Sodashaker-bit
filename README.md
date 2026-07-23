@@ -1,5 +1,10 @@
 
-<img width="736" height="414" alt="3d195fdc21da9a6c01b4ae2c7b02a203" src="https://github.com/user-attachments/assets/1325a556-7b57-4794-96ea-c3f44d3af123" />
+<img width="736" height="414" alt="3d195fdc21da9a6c01b4ae2c7b02a203" src="https://github.com/user-attachments/assets/1325a556-7b57-4794-96ea-c3f44d3af123" /> 
+<img width="1024" height="218" alt="2nnghe" src="https://github.com/user-attachments/assets/5e899a55-28e6-449a-834e-febfde49bf77" />
+
+
+
+
 
 
    ![visitors](https://komarev.com/ghpvc/?username=sodashaker-bit&label=cupcakes%20given%20&labelColor=&countcolor=ffffff6&style=plastic)
@@ -26,5 +31,7 @@
 
    , int freely ! idm C+H i happily encorage it !
                                            𓂃　ㅤ ships int idm what kind !!  　+
+
+
 
                 
