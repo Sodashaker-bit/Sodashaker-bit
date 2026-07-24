@@ -24,8 +24,6 @@
  
    
    𓂃　 !! <3 　_
-
-<img width="216" height="240" alt="pony-town-pinkie ! ,🎂 🎊 kin-trot-blinking-padded-toy415-4x" src="https://github.com/user-attachments/assets/1479a8ef-a420-410e-95b5-ee253a033b6f" />
 　　　　　　
 
 ˖ no copy 　ﾉ yes　 inspo .               
