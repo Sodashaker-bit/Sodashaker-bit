@@ -1,4 +1,3 @@
-
 <img width="736" height="414" alt="3d195fdc21da9a6c01b4ae2c7b02a203" src="https://github.com/user-attachments/assets/1325a556-7b57-4794-96ea-c3f44d3af123" /> 
 
 
@@ -26,7 +25,7 @@
    
    𓂃　 !! <3 　_
 
-
+<img width="216" height="240" alt="pony-town-pinkie ! ,🎂 🎊 kin-trot-blinking-padded-toy415-4x" src="https://github.com/user-attachments/assets/1479a8ef-a420-410e-95b5-ee253a033b6f" />
 　　　　　　
 
 ˖ no copy 　ﾉ yes　 inspo .               
